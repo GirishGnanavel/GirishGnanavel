@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GirishGnanavel
 - 👀 I’m interested in game developing and programming
 - 🌱 I’m currently learning java script
-- 💞️ I’m looking to collaborate on anything 🤭
+- 💞️ I’m looking to collaborate on easy tasks 🤭
 - 📫 How to reach me ... i dont know.. mail me ig?
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like to learn new things!
