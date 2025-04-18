@@ -2,7 +2,7 @@
 - 👀 I’m interested in game developing and programming
 - 🌱 I’m currently learning java script
 - 💞️ I’m looking to collaborate on easy tasks 🤭
-- 📫 How to reach me ... i dont know.. mail me ig?
+- 📫 How to reach me ... i dont know.. mail me ig? (i have no socials)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like to learn new things!
 
